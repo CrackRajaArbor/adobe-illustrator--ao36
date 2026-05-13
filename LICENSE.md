@@ -1,4 +1,4 @@
-# 
+# Enhance Adobe Illustrator for macOS with Adobe Illustrator for macOS elite Panel: cloud sync & asset management, the #1 panel. Includes cloud sync and asset management for a
 
 
 
